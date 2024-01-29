@@ -40,4 +40,4 @@ Contact Us:
 
 https://t.me/AuditBlock
 <br/>
-Auditblock@gmai.com
+Auditblock@gmail.com
